@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg Script smart offers the most advanced break a brainrot egg Script, with no cooldown and auto-collect. Perfect for dominating any
 
 
 
